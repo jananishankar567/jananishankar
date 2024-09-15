@@ -1,6 +1,6 @@
 - 👋 Hi, I’m jananishankar
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning 2nd year EIE student at Bannari Amman Institute of Technology
+- 🌱 I’m currently 2nd year EIE student at Bannari Amman Institute of Technology
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me jananishankar65@gmail.com
 - 😄 Pronouns: 
